@@ -7,10 +7,13 @@
 <details>
 
 <summary>before you int</summary>
-I have asd, ocd, and aspd. I lack empathy, and I am confrontational. I come off blunt, if I ever offend or hurt you I encourage private messaging me. 
+<img width="20" height="20" alt="IMG_5967" src="https://github.com/user-attachments/assets/b6f98c8d-0ace-42d6-9db0-d596777cb0eb" />
+ ⟢ I have asd, ocd, and aspd. I lack empathy, and I am confrontational. I come off blunt, if I ever offend or hurt you I encourage private messaging me.  
 
-I will not reciprocate any type of flirting or engage in those things seriously. devoted to @Birdlings ♡
+<img width="20" height="20" alt="IMG_5967" src="https://github.com/user-attachments/assets/b6f98c8d-0ace-42d6-9db0-d596777cb0eb" /> ⟢ I will not reciprocate any type of romantic feelings or obsessions with me..flirting or engage in those things seriously. devoted to alan ♡
 
-Tim Drake + Johnny Joestar ns yume. 
+<img width="20" height="20" alt="IMG_5967" src="https://github.com/user-attachments/assets/b6f98c8d-0ace-42d6-9db0-d596777cb0eb" /> ⟢ Almost always with alan. my person.
+
+<img width="20" height="20" alt="IMG_5967" src="https://github.com/user-attachments/assets/b6f98c8d-0ace-42d6-9db0-d596777cb0eb" /> ⟢ Tim Drake + Johnny Joestar ns yume. 
 
 </details>
